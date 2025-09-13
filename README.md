@@ -1,4 +1,4 @@
-# 👋 Olá, eu sou o Leonardo dos Santos Souza  
+# 👋 Olá, eu sou o Leonardo Souza  
 
 🎓 Estudante de **Ciências Econômicas** (7º semestre | previsão de término em 2026)  
 ⚓ Formação Técnica em **Portos (FEMAR)** e **Transações Imobiliárias (IPA)**  
